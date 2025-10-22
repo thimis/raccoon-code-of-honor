@@ -1,7 +1,5 @@
 # raccoon-code-of-honor
-A raccoon's code of honor for daily life
-
-🦝 The Raccoon Code of Honor:
+🦝 The Raccoon Code of Honor — A Universal Guide to Living Brightly
 
 🔥 1. Burn Bright
 
